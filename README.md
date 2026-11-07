@@ -1,4 +1,4 @@
-# Masashi Iida | 飯田 雅史
+# Masashi Iida | 飯田 昌司
 
 **Management Consultant / AI & Mathematical Optimization Architect / Cultural Anthropologist / Real Estate Investor**  
 **経営コンサルタント / AI・数理最適化アーキテクト / 文化人類学者 / 不動産オーナー・投資家**
